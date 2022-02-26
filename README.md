@@ -1,3 +1,10 @@
+
+
+<div>
+<img align="middle" alt="Sammy-Gif" height="500" style="border-radius:50px;" src="https://media.discordapp.net/attachments/946105106636636172/947230107767037992/BEM_VINDOS.gif?width=1043&height=586">
+</div>
+
+
 ### Olá Pessoas! Sou a Fogaça👻
 
 
