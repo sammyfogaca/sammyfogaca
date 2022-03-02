@@ -12,7 +12,7 @@
 - 😄 Pronouns: Ela/Dela
 - ⚡ Fato Engraçado: HAHAHA
 - 📕 Em busca de mais conhecimentos
-- 😃✨Amo animes (Narutooooo)
+- 😃 Amante de animes (Narutooooo)
 - 📕 Aprecio a língua Inglesa
 
 <div align="center">
