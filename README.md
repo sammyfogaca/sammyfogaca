@@ -12,6 +12,8 @@
 - 😄 Pronouns: Ela/Dela
 - ⚡ Fato Engraçado: HAHAHA
 - 📕 Em busca de mais conhecimentos
+- 😃✨Amo animes (Narutooooo)
+- 📕 Aprecio a língua Inglesa
 
 <div align="center">
   <a href="https://github.com/sammyfogaca">
